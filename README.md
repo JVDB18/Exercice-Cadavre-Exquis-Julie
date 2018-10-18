@@ -9,3 +9,4 @@ _Un bug?_ **Duckana**
 _Une diarrhée verbale inasouvie et pas assez d'argent pour te payer le psy?_ **Duckana**
 _Un hotel?_ **Trivago**
 _Une soudaine solitude?_ **RuoVarino**
+Il est aussi le créateur de la pout-ologie, une thérapie révolutionnaire pour soigner le mal de tête des gens. Cette thérapie est à ce jour encore au top du coin coin.

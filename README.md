@@ -15,3 +15,12 @@ Il est aussi le créateur de la pout-ologie, une thérapie révolutionnaire pour
 _Mais, tapie dans l'ombre, une menace guette Duckana Jones._
 **Le Docteur Belloc oeuvre une fois de plus pour lui voler ses découvertes afin d'en tirer profit.**
 Mais que peut faire Duckana Jones pour ses découvertes trouvent leur place dans un musée ?
+
+
+Un ogre, très grincheux, appelé L'Ogre violet arriva et s'enerva
+sur le petit chevalier, car il avait pietiné les violettes
+de sa forêt enchanté :
+
+**L'Ogre** _"Pauvre petit homme, tu as mis les pieds au mauvais endroit "_df
+
+Il attrapera le chevalier, et l'engloutit d'un seul coup

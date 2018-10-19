@@ -24,3 +24,7 @@ de sa forêt enchanté :
 **L'Ogre** _"Pauvre petit homme, tu as mis les pieds au mauvais endroit "_
 
 Il attrapera le chevalier, et l'engloutit d'un seul coup
+
+
+Grande et _terrible_ fut la colère de Duckana Jones! Car, grand Seigneur il est du côté des chevaliers. Il décida de **corriger ** allègrement l'ogre malotru.
+Mais l'ogre est un géant; comment donc lui fiche une fessée quand on arrive juste à sa rotule?
